@@ -5,7 +5,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/muhammadosama-dev](https://github.com/muhammadosama-dev)
 
-- 📫 How to reach me **ok26568@gmail.com**
+- 📫 How to reach me **mohdosama1155@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
